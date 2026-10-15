@@ -1,4 +1,4 @@
-# Claude of Duty
+# Omran
 
 Get updates [here](https://shumer.dev/newsletter).
 
